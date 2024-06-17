@@ -1,0 +1,1 @@
+# article_adaptive7
